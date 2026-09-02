@@ -42,7 +42,7 @@ Foggy Rock Restaurant & Pub (2011-2014)
 - Maintained kitchen as restaurant stewart
 
 Peace Corps Romania (2006-2008)
-*English Teacher, Liceul Teoretic Alexandru Mocioni
+*English Teacher, Liceul Teoretic Alexandru Mocioni, 
 Ciacova, Romania*
 - Taught English to middle school and high school students
 - Conducted community needs assesments and coordinated with local school and government officials
